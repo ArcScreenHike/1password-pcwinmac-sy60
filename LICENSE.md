@@ -1,4 +1,4 @@
-# 
+# Automatic 1Password extensions for Mac OS | Turbo 1Password extensions for PC Windows. Featuring historical reports and double vpn — optimized for maximum performance on every platform.
 
 
 
